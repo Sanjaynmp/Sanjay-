@@ -50,5 +50,6 @@ Seeking opportunities as a Full Stack Developer where I can apply my technical k
 
 ### 📫 Connect With Me
 
-* LinkedIn: Add Your LinkedIn URL
-* Email: Add Your Email
+* LinkedIn: (https://www.linkedin.com/in/sanjay-r-921004286/)
+* Email: sanjaynmp23@gmail.com
+* 
